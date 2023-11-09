@@ -1,1 +1,1 @@
-# Samsung-Dishwashers
+Samsung Dishwashers - Samsung Dishwashers: Advanced technology, reliable, efficient. Stylish design, customizable settings. Upgrade your kitchen with confidence. - https://gohousfun.com/samsung-dishwashers/
